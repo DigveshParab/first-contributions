@@ -66,6 +66,7 @@ Salut! I am Mariam
 - Xinchao ! Toi la Trinh Mai
 - You know who I'm [krikera]
 - Hi! This is Dana! 11 Nov 2024. 
+- Hi! Digvesh here, doing my first contribution, Let the journey begin! | [Digvesh Parab](https://github.com/DigveshParab/) **20-Nov-2024**
 - Heyy! This is Kevin doing my first contribution wow.
 - Hi! This  Abdullah Ansir | Ml enginner [Abdullah Ansir](github.com/abdullah8644)
 - Ayayaya, Hola amigüitos ¡como estan! los saludo desde acá, por que allá estan ustedes. [***Starcondor***](https://github.com/starcondor) de <img title="México" alt="México" src="https://cdn.statically.io/gh/hjnilsson/country-flags/master/svg/mx.svg" width="22">, desde el 11 de Noviembre de 2024.
